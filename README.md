@@ -12,4 +12,9 @@ good quality waster supply which is the root cause of the kideny stone.It will b
 
 Similar way if food/water/pollution related disease or infection related disease can be mapped.
 
+The project flow diagram is available as shared link 
+
+https://go.gliffy.com/go/share/sh21tvrjf5903j636g1h
+
+
 
